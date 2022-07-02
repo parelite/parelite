@@ -14,7 +14,7 @@
 - Keybase ngl, I really dont know
 - Personal Website, Maybe? [**GOS Sensei**](https://gossensei.com/)
 
-**Favorite Animes**
+**Favorite Anime**
 - [Spy x Family](https://beta.crunchyroll.com/series/G4PH0WXVJ/spy-x-family)
 - [Classroom of The Elite](https://beta.crunchyroll.com/series/GRVN8MNQY/classroom-of-the-elite)
 
