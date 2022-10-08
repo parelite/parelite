@@ -3,7 +3,7 @@
 
 **About me & Complaining about Bungie API**
 - Name **Sam**
-- Studying **Computer Science A Level**
+- Studying **Computer Science**
 - Currently working on [**GOS Sensei**](https://github.com/GOS-Sensei)
 - Yes, I do use Arch Linux 😂
 - Bungie API is the worst documented API for a video game.
