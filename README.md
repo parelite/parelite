@@ -22,4 +22,4 @@
 
 <sub>- Hitsugaya Toshiro</sub>
 
-![](https://komarev.com/ghpvc/?username=NotBruce_&color=6eb1f5)
+![](https://komarev.com/ghpvc/?username=NotBruce&color=6eb1f5)
