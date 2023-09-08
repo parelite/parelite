@@ -6,7 +6,7 @@
 - Currently working on [**Lowman**](https://discord.gg/lowman)
 **Social Media**
 - Discord **Bruce#0002**
-- Twitter [**@LightDefendrFan_**](https://twitter.com/LightDefendrFan)
+- Twitter [**@LightDefendrFan**](https://twitter.com/LightDefendrFan)
 
 **Favorite Anime**
 - [Spy x Family](https://beta.crunchyroll.com/series/G4PH0WXVJ/spy-x-family)
