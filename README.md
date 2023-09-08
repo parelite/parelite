@@ -3,16 +3,10 @@
 
 **About me & Complaining about Bungie API**
 - Name **Sam**
-- Studying **Computer Science**
-- Currently working on [**GOS Sensei**](https://github.com/GOS-Sensei)
-- Yes, I do use Arch Linux 😂
-- Bungie API is the worst documented API for a video game.
-
+- Currently working on [**Lowman**](https://discord.gg/lowman)
 **Social Media**
 - Discord **Bruce#0002**
-- Twitter [**@NotBruce_**](https://twitter.com/NotBruce_)
-- Keybase ngl, I really dont know
-- Personal Website, Maybe? [**GOS Sensei**](https://gossensei.com/)
+- Twitter [**@LightDefendrFan_**](https://twitter.com/LightDefendrFan)
 
 **Favorite Anime**
 - [Spy x Family](https://beta.crunchyroll.com/series/G4PH0WXVJ/spy-x-family)
