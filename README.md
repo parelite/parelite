@@ -4,7 +4,6 @@
 **About me & Complaining about Bungie API**
 - Name **Sam**
 - Currently working on [**Lowman**](https://discord.gg/lowman)
-**Social Media**
 - Discord **Bruce#0002**
 - Twitter [**@LightDefendrFan**](https://twitter.com/LightDefendrFan)
 
