@@ -1,5 +1,4 @@
-<img src="https://media.tenor.com/BJ-9w-MUVCMAAAAC/tis100-sad.gif
-" height="550" width="350" align="right" />
+<img src="https://media.tenor.com/BJ-9w-MUVCMAAAAC/tis100-sad.gif" height="550" width="350" align="right" />
 <br />
 
 **About me**
