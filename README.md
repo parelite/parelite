@@ -4,7 +4,7 @@
 **About me**
 - Name **Samuel Davis**
 - Currently working on [**RaidHub**](https://raidhub.app/) & [**Loti**](https://www.loti.dev/)
-- Discord **lotidev**
+- Discord **parelite**
 
 <sub> *“We are all like fireworks: We climb, we shine and always go our separate ways and become further apart. But even when that time comes, let’s not disappear like a firework and continue to shine… forever.”*</sub> 
 
